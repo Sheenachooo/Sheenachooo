@@ -1,5 +1,5 @@
 
-# Hi, I'm Xinyu Cai 👋
+# Hi, I'm Sheena Cho 👋
 
 ### Learning Experience Designer & Learning Technologist
 
